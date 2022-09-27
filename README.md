@@ -2,7 +2,7 @@
 ### Muito Prazer 😄😄
 #
 
-- 🌱 Estudando Análise de Dados no Entra21 
+- 🌱 Cursando Análise de Dados no Entra21 
 
 
 <div>
