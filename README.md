@@ -2,7 +2,8 @@
 ### Muito Prazer 😄😄
 #
 
-- 🌱 Cursando Análise de Dados no Entra21 
+- 🌱 Entusiasta por conhecimento, inovação e tecnologia
+- 📊 Analista de dados
 
 
 <div>
